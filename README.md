@@ -1,0 +1,1 @@
+# Stratifiacation-of-major-problem-
